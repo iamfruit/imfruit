@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KURDOOx
+- 👋 Hi, Imfruit
 - 👀 I’m interested in networking & scripts :-) 
 - 💞️ I’m looking to collaborate on everything LOL
 
